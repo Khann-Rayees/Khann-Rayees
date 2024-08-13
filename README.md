@@ -6,7 +6,7 @@ Hi, I’m Rayees Ahmad Khan!
 
 💞️ I’m looking to collaborate on projects that involve data exploration, analysis, and visualization. If you have an interesting dataset or a challenging problem that could benefit from data analysis, let's work together to bring valuable insights to light!
 
-📫 How to reach me: You can connect with me via email at rayeesahkhan8@gmail.com or through LinkedIn at www.linkedin.com/in/rayeesahmadkhan.
+📫 How to reach me: You can connect with me via email at khanrayeeskhan7@gmail.com or through LinkedIn at www.linkedin.com/in/rayeesahmadkhan.
 
 😄 Pronouns: He/Him
 
